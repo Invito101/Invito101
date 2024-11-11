@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm Anurag Rao U. I'm currently a freshman in International Institute of Information Technology Bangalore(IIIT-B) pursuing Integrated Master of Tecchnology(BTech+MTech). I love to learn new things and play games. In my free time, I like to watch anime and read books.
+I'm Anurag Rao U. I'm currently a freshman in International Institute of Information Technology Bangalore(IIIT-B) pursuing Integrated Master of Technology(BTech+MTech). I love to learn new things and play games. In my free time, I like to watch anime and read books.
 
 ## About me
 
